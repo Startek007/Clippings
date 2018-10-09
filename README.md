@@ -1,6 +1,6 @@
 # Clippings
 🔷🔶🔷🔶🔷🔶🔷🔶🔷🔶🔷🔶🔷🔶🔷🔶🔷🔶🔷🔶🔷🔶
-¡Hola! Mi nombre es Kelvin. Estaré encantado de atenderte el día de hoy.
+¡Hola! Mi nombre es [CSA]. Estaré encantado de atenderte el día de hoy.
 
 Disculpa el inconveniente con tu pedido.
 
